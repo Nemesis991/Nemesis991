@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nemesis991
-- 👀 I’m interested in programming.
+- 👀 I’m interested in everything.
 - 🌱 I’m currently learning Python. I want to get involved as much as possible 
 - 💞️ I’m looking to collaborate on everything.
 - 📫 How to reach me minizahariev120@gmail.com 
